@@ -1,0 +1,2 @@
+# Hi-I-amAman
+👨‍💻 I'm currently studying b.tech @ SRIST, Jabalpur. 👨‍🎓 I graduated from Shri Ram institute of science and technology jabalpur in year 2020 (the COVID year) with bachelor's degree in Computer Science &amp; Engineering.  🌱  I’m currently learning full stack developer    👯 I’m looking topics in Machine Learning &amp; AI.  💬 Ask me about c, c++ and java anything.  📫 How to reach me: aman031298@gmail.com 
